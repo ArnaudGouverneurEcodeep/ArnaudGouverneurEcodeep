@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Arnaud, Président Ecodeep Deeply Eco Friendly SASU, North of France
+- 👋 Hi, I’m Arnaud, President Ecodeep Deeply Eco Friendly SASU, North of France
 - 👀 I propose compostable products and ethic/eco-responsable solutions, with french ecoconception, to have a 0 waste impact...since 2010.
 
 How ? Local production/distribution in Europe and North Africa
